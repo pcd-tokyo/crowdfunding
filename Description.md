@@ -35,6 +35,8 @@ https://ayumu-nagamatsu.com/
 
 ![hieda](./images/hieda.jpg)
 
+(Photo from [creativeapplications.net](https://www.creativeapplications.net/can-events/inventing-the-future-at-mutek_img/))
+
 http://naotohieda.com/
 日本とカナダを拠点に、メディアアートやコンテンポラリーダンスの分野で活動中のアーティスト。
 
